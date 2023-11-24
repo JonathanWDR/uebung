@@ -1,2 +1,2 @@
 Jonathan, der Chef
-Johannes, der andere
+Johannes, der andere Chef
